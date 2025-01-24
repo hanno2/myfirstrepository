@@ -9,3 +9,4 @@
 - kochen im Warung Anastasia
 ### Kenntnisse
 - kochen im Warung Anastasia
+(https://www.bali-insider.at/essen-und-trinken/)
